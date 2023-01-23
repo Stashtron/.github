@@ -28,8 +28,7 @@ If you're interested in our services or have any questions, please don't hesitat
 Email: info@stashtron.com 📧
 
 Follow us on social media 📱
-- [Facebook 📱]()
-- [Instagram 📷]()
-- [Twitter 🐦]()
+- [Instagram 📷](https://www.instagram.com/stashtron/?next=%2F)
+- [Twitter 🐦](https://twitter.com/stashtroninfo)
 
 Thank you for considering Stashtron for your digital solutions needs! 🙏
